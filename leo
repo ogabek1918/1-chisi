@@ -1,0 +1,3 @@
+samarqand
+samarqand
+samarqamd
